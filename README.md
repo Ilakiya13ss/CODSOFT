@@ -29,8 +29,8 @@ I’m grateful for the opportunity to work on real-world projects and strengthen
 
 ## 🔗 Connect with Me
 
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/your-name)
-- **GitHub**: [your-username](https://github.com/your-username)
+- **LinkedIn**: Ilakiya S (www.linkedin.com/in/ilakiya-s-25773232b)
+
 ---
 ## 🙏 Acknowledgment
 
